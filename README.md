@@ -1,4 +1,4 @@
-- 👋 Hi, I’m <a href="https://rb.gy/v9lhj">SATYANARAYAN NAYAK</a>
+- 👋 Hi, I’m <a href="https://rb.gy/h82ibx">SATYANARAYAN NAYAK</a>
 - 👀 Exploring the realms of technology and coding
 - 🌱 Currently on a learning journey to sharpen my skills
 - 💞️ Excited to collaborate on projects that push boundaries
